@@ -1,0 +1,1 @@
+These are some silly little filters for Rutgers Multi-Media Homework. Enjoy!
